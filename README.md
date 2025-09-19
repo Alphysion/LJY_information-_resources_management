@@ -1,0 +1,2 @@
+# LJY_information-_resources_management
+作为某985信息资源管理类学生本科期间总结
